@@ -1,2 +1,1 @@
-the name's noxy
-i forgor 💀
+the name's noxy and uh
